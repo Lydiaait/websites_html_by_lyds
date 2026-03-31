@@ -1,2 +1,2 @@
-# websites_html_by_lyds
-Creating simple websites
+HI♡ 
+I'm Lydia, a CS student who tries to get better at her domain. 
